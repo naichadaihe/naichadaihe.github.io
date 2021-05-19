@@ -1,1 +1,0 @@
-# naichadaihe.github.io
